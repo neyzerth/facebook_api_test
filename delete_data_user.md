@@ -1,0 +1,1 @@
+"Para solicitar la eliminación de tus datos, por favor envíanos un correo a [neyzertoledo@gmail.com]."
